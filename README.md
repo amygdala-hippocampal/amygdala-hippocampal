@@ -1,6 +1,6 @@
 <p align="center"
 <br> <img width="450" src='https://github.com/amygdala-hippocampal/amygdala-hippocampal/blob/main/me.png?raw=true'>
-<br> [ 🇳 🇾 🇺 🇷 🇨 🇭 🇮 🇰 ]
+<br> [ ＮＹＵＲＣＨＩＫ ]
 </p> 
 
 <p align="center"> 
