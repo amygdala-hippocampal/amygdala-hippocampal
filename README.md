@@ -5,7 +5,7 @@
 
 <p align="center"> 
 ⊹₊·<img width="200" src="https://github.com/amygdala-hippocampal/amygdala-hippocampal/blob/main/hmhmh.png?raw=true"
-</p>₊·.
+</p>.·₊
  
 <p align="center"
 <br>┏━━━━━━━━━━━┓
