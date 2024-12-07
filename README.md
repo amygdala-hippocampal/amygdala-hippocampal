@@ -25,5 +25,5 @@
 </p>
 
 <div align="center">
-<video src="https://github.com/user-attachments/assets/b2f9ce5a-cfcc-46be-a7b9-e22d6f446cf8"/>
+<video src="https://github.com/user-attachments/assets/bf3b6c3d-c508-46fb-90b3-bb8d7a560fe0"/>
 </div>
