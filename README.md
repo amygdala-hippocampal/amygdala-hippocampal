@@ -4,7 +4,7 @@
 </p> 
 
 <p align="center"> 
-₊·<img width="200" src="https://github.com/amygdala-hippocampal/amygdala-hippocampal/blob/main/hmhmh.png?raw=true"
+⊹₊·<img width="200" src="https://github.com/amygdala-hippocampal/amygdala-hippocampal/blob/main/hmhmh.png?raw=true"
 </p>₊·.
  
 <p align="center"
@@ -14,10 +14,10 @@
 
 <p align="center"
 <br> <sup>(𝘮𝘰𝘴𝘵𝘭𝘺 𝘰𝘧𝘧𝘵𝘢𝘣/𝘈𝘍𝘒 𝘴𝘰 𝘞2𝘐)</sup>
-<br>┏.━━━━━━━━.┓
+<br>┏━━━━━━━━━━┓
 <br> <sup>𝘥𝘪𝘴𝘤𝘰𝘳𝘥 @ 𝘪𝘴 shuraleika</sup>
 <br> <sup>@hq_npc 𝘧𝘰𝘳 𝘵𝘦𝘭𝘦𝘨𝘳𝘢𝘮</sup>
-<br>┗˙━━━━━━━━˙┛
+<br>┗━━━━━━━━━━┛
 <br> <a href="https://hqnpc.straw.page/"> 𝘤𝘩𝘦𝘤𝘬 𝘮𝘺 𝘴𝘵𝘳𝘢𝘸𝘱𝘢𝘨𝘦!</a>
 </p>
 
