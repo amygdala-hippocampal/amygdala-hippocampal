@@ -1,5 +1,5 @@
 <p align="center"
-<br> <img width="500" src='https://github.com/amygdala-hippocampal/amygdala-hippocampal/blob/main/me.png?raw=true'>
+<br> <img width="450" src='https://github.com/amygdala-hippocampal/amygdala-hippocampal/blob/main/me.png?raw=true'>
 <br> [ 🇳 🇾 🇺 🇷 🇨 🇭 🇮 🇰 ]
 </p> 
 
