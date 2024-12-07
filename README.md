@@ -8,11 +8,11 @@
 </p>.·₊
  
 <p align="center"
-<br>┏━━━━━━━━━━━━━━┓
+<br>┏━━━━━━━━━━━━┓
 <br><sup><i>05.05.2002</i></sup> <img width="30" src='https://github.com/amygdala-hippocampal/amygdala-hippocampal/blob/main/uuu.png?raw=true'><sup>𝘴𝘩𝘦/𝘩𝘦𝘳</sup><img width="21" src='https://github.com/amygdala-hippocampal/amygdala-hippocampal/blob/main/pin.png?raw=true'><sup>𝘳𝘶𝘴𝘴𝘪𝘢𝘯</sup>
 <br> <sup>𝘯𝘰 𝘋𝘕𝘐 + 𝘥𝘰𝘯'𝘵 𝘮𝘪𝘯𝘥 𝘢𝘣𝘰𝘶𝘵 𝘴𝘭𝘶𝘳</sup>
 <br> <sup>𝘤+𝘩 𝘪𝘴 𝘰𝘬!</sup>
-<br>┗━━━━━━━━━━━━━━┛
+<br>┗━━━━━━━━━━━━┛
 
 <p align="center"
 <br> <sup>(𝘮𝘰𝘴𝘵𝘭𝘺 𝘰𝘧𝘧𝘵𝘢𝘣/𝘈𝘍𝘒 𝘴𝘰 𝘞2𝘐)</sup>
