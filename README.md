@@ -1,16 +1,29 @@
-## Hi there 👋
+<p align="center"> 
+<img width="500" src="https://github.com/amygdala-hippocampal/amygdala-hippocampal/blob/main/me.png?raw=true"
+</p>
 
-<!--
-**amygdala-hippocampal/amygdala-hippocampal** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+</p> 
+<p align="center"
+ <br> ₊· 🇳 🇾 🇺 🇷 🇨 🇭 🇮 🇰  ₊·.
+   </p> 
+<p align="center"> 
+<img width="200" src="https://github.com/amygdala-hippocampal/amygdala-hippocampal/blob/main/hmhmh.png?raw=true"
+</p>
+   <p align="center"
+      <br> ‎<i>𝘴𝘩𝘦/𝘩𝘦𝘳</i> 
+      <br> 𝘯𝘰 𝘵𝘳𝘪𝘨𝘨𝘦𝘳𝘴 + 𝘯𝘰 𝘋𝘕𝘐
 
-Here are some ideas to get you started:
+ <p align="center"
+ <br> <sup>𝟶𝟻.𝟶𝟻.𝟸𝟶𝟶𝟸</sup> <img width="30" src='https://github.com/amygdala-hippocampal/amygdala-hippocampal/blob/main/uuu.png?raw=true'><sup>𝘳𝘶𝘴𝘴𝘪𝘢𝘯</sup>
+ <br> 𝘮𝘰𝘴𝘵𝘭𝘺 𝘰𝘧𝘧𝘵𝘢𝘣/𝘈𝘍𝘒 𝘴𝘰 𝘞2𝘐
+ <br> <a href="https://hqnpc.straw.page/"> 𝘤𝘩𝘦𝘤𝘬 𝘮𝘺 𝘴𝘵𝘳𝘢𝘸𝘱𝘢𝘨𝘦!</a>
+ </p>
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+</h4>
+<p align="center">
+<img width="300" src="https://github.com/amygdala-hippocampal/amygdala-hippocampal/blob/main/zaebis.png?raw=true"
+</p>
+
+<div align="center">
+<video src="https://github.com/user-attachments/assets/b2f9ce5a-cfcc-46be-a7b9-e22d6f446cf8"/>
+</div>
