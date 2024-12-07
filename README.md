@@ -15,7 +15,7 @@
 <p align="center"
 <br> <sup>(𝘮𝘰𝘴𝘵𝘭𝘺 𝘰𝘧𝘧𝘵𝘢𝘣/𝘈𝘍𝘒 𝘴𝘰 𝘞2𝘐)</sup>
 <br> <sup>𝘥𝘪𝘴𝘤𝘰𝘳𝘥 @ 𝘪𝘴 𝘴𝘩𝘶𝘳𝘢𝘭𝘦𝘪𝘬𝘢</sup>
-<br> <sup>𝘢𝘯𝘥 @𝘩𝘲_𝘯𝘱𝘤 𝘧𝘰𝘳 𝘵𝘦𝘭𝘦𝘨𝘳𝘢𝘮</sup>
+<br> <sup>@𝘩𝘲_𝘯𝘱𝘤 𝘧𝘰𝘳 𝘵𝘦𝘭𝘦𝘨𝘳𝘢𝘮</sup>
 <br> <a href="https://hqnpc.straw.page/"> 𝘤𝘩𝘦𝘤𝘬 𝘮𝘺 𝘴𝘵𝘳𝘢𝘸𝘱𝘢𝘨𝘦!</a>
 </p>
 
