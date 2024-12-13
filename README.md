@@ -17,7 +17,8 @@
 <p align="center"
 <br> 𝘮𝘰𝘴𝘵𝘭𝘺 𝘰𝘧𝘧𝘵𝘢𝘣/𝘈𝘍𝘒 𝘴𝘰 <strong>𝘞2𝘐</strong>
 <br> 𝘥𝘪𝘴𝘤𝘰𝘳𝘥 @ 𝘪𝘴 shuraleika ╳︎ @hq_npc 𝘧𝘰𝘳 𝘵𝘦𝘭𝘦𝘨𝘳𝘢𝘮
-<br> <a href="https://hqnpc.straw.page/"> -ˋˏ 𝘮𝘺 𝘴𝘵𝘳𝘢𝘸𝘱𝘢𝘨𝘦 ˎˊ-</a> 
+<br> <a href="https://nyurchik.carrd.co"> 𝘤𝘢𝘳𝘳𝘥 [♡] </a> 
+<br> <a href="https://hqnpc.straw.page/"> -ˋˏ 𝘴𝘵𝘳𝘢𝘸𝘱𝘢𝘨𝘦 ˎˊ-</a> 
 </p>
 
 </h4>
