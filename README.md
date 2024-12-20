@@ -19,7 +19,7 @@
 <br> 𝘥𝘪𝘴𝘤𝘰𝘳𝘥 @ 𝘪𝘴 shuraleika ╳︎ @hq_npc 𝘧𝘰𝘳 𝘵𝘦𝘭𝘦𝘨𝘳𝘢𝘮
 <br> <a href="https://nyurchik.carrd.co"> 𝘤𝘢𝘳𝘳𝘥 [♡] </a> 
 <br> <a href="https://hqnpc.straw.page/"> -ˋˏ 𝘴𝘵𝘳𝘢𝘸𝘱𝘢𝘨𝘦 ˎˊ-</a> 
-<br> <a href="https://nyurch.atabook.org/"> ⊹*.𝘢𝘵𝘢𝘣𝘰𝘰𝘬₊· </a> 
+<br> <a href="https://nyurch.atabook.org/"> ⊹*.𝘢𝘵𝘢𝘣𝘰𝘰𝘬₊·✦ </a> 
 </p>
 
 </h4>
