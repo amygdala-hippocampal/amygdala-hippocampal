@@ -1,7 +1,3 @@
-<p align="center">
-  <img src="https://komarev.com/ghpvc/?username=yourusername&style=for-the-badge&color=998973" alt="Profile Views"/>
-</p>
-
 <p align="center"
 ![Profile Views](https://komarev.com/ghpvc/?username=yourusername&style=for-the-badge&color=998973)
 </p> 
