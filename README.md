@@ -1,3 +1,11 @@
+<p align="center">
+  <img src="https://komarev.com/ghpvc/?username=yourusername&style=for-the-badge&color=998973" alt="Profile Views"/>
+</p>
+
+<p align="center"
+![Profile Views](https://komarev.com/ghpvc/?username=yourusername&style=for-the-badge&color=998973)
+</p> 
+
 <p align="center"
 <br> <img width="1000" src='https://github.com/amygdala-hippocampal/amygdala-hippocampal/blob/main/%D0%BC%D1%8F%D0%BA.png?raw=true'> 
 </p> 
