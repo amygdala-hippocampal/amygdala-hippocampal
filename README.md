@@ -1,7 +1,3 @@
-<p align="center">
-  <img src="https://komarev.com/ghpvc/?username=amygdala-hippocampal&style=for-the-badge&color=998973" alt="Profile Views"/>
-</p>
-
 <p align="center"
 <br> <img width="1000" src='https://github.com/amygdala-hippocampal/amygdala-hippocampal/blob/main/%D0%BC%D1%8F%D0%BA.png?raw=true'> 
 </p> 
@@ -37,6 +33,10 @@
 <p align="center"
 <br> <img width="1000" src='https://github.com/amygdala-hippocampal/amygdala-hippocampal/blob/main/%D0%BC%D1%8F%D0%BA.png?raw=true'> 
 </p> 
+
+<p align="center">
+  <img src="https://komarev.com/ghpvc/?username=amygdala-hippocampal&style=for-the-badge&color=998973" alt="Profile Views"/>
+</p>
 
 <div align="center">
 <video src="https://github.com/user-attachments/assets/475f7691-3079-4d3a-b08b-c530dd50d29f"
