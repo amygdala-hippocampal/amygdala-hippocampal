@@ -21,7 +21,7 @@
 <p align="center"
 <br> 𝚖𝚘𝚜𝚝𝚕𝚢 𝚘𝚏𝚏𝚝𝚊𝚋/𝙰𝙵𝙺 𝚜𝚘 <strong>𝚆𝟸𝙸</strong>
 <br> 𝚍𝚒𝚜𝚌𝚘𝚛𝚍 @ 𝚒𝚜 shuraleika ╳︎ @hq_npc 𝚏𝚘𝚛 𝚝𝚎𝚕𝚎𝚐𝚛𝚊𝚖
-<br> <a href="https://telegra.ph/hq-npc-info-01-07"> 𝚝𝚎𝚕𝚎𝚐𝚛𝚊𝚙𝚑 𝚌𝚘𝚖𝚙𝚕𝚎𝚝𝚎𝚕𝚢 𝚒𝚗 𝚛𝚞𝚜𝚜𝚒𝚊𝚗 [⚠︎] </a> 
+<br> <a href="https://telegra.ph/hq-npc-info-01-07"> 𝚝𝚎𝚕𝚎𝚐𝚛𝚊𝚙𝚑 𝚒𝚗 𝚛𝚞𝚜𝚜𝚒𝚊𝚗 (𝚊𝚋𝚜𝚘𝚕𝚞𝚝𝚎𝚕𝚢 𝚞𝚗𝚝𝚛𝚊𝚗𝚜𝚕𝚊𝚝𝚊𝚋𝚕𝚎) [⚠︎] </a> 
 <br> <a href="https://nyurchik.carrd.co"> 𝚌𝚊𝚛𝚛𝚍 [♡] </a> 
 <br> <a href="https://hqnpc.straw.page/"> -ˋˏ 𝚜𝚝𝚛𝚊𝚠𝚙𝚊𝚐𝚎 ˎˊ-</a> 
 <br> <a href="https://nyurch.atabook.org/"> ·₊⊹𝚊𝚝𝚊𝚋𝚘𝚘𝚔⊹₊· </a> 
