@@ -18,7 +18,7 @@ $\large{\textsf{And I always have a GitHub under my nickname.}}$ $\color{red}{\l
 </p> 
 
 > [!CAUTION]
-> $\large{\textsf{I'm the biological mother, the one who bore this goddamn four-legged creature with extreme love.}}$ $\color{red}{\huge{\textsf{BEWARE.}}}$
+> $\large{\textsf{I'm the evil biological mother, the one who bore this goddamn four-legged creature with extreme love.}}$ $\color{red}{\huge{\textsf{BEWARE.}}}$
 
 
 <p align="center"
