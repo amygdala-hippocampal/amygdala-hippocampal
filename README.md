@@ -1,10 +1,16 @@
+
 <div align="center">
-  <h2><span>I'm the fucking orig creator.</span></h2>
+  <h2><span>$\Huge{\textsf{I'm the fucking orig creator.}}$</span></h2>
 </div>
+
 
 <p align="center"
 <br> <img width="1000" src='https://github.com/user-attachments/assets/1ab87dfa-c73b-48d7-ac65-5b2efda14162'> 
 </p> 
+
+> [!CAUTION]
+> $\large{\textsf{I'm the biological mother, the one who bore this goddamn four-legged creature with extreme love.}}$ $\color{red}{\huge{\textsf{BEWARE}}}$.
+
 
 <p align="center"
 <br> <img width="1000" src='https://github.com/amygdala-hippocampal/amygdala-hippocampal/blob/main/%D0%BC%D1%8F%D0%BA.png?raw=true'> 
