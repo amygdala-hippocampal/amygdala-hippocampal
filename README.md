@@ -1,6 +1,6 @@
 
 <div align="center">
-  <h2><span>$\Huge{\textsf{I'm the fucking orig creator.}}$</span></h2>
+  <h2><span>$\Huge{\textsf{I am the orig creator. Thank you.}}$</span></h2>
 </div>
 
 
