@@ -10,7 +10,6 @@ $\large{\textsf{And I always have a GitHub under my nickname.}}$ $\color{red}{\l
 
 <p $\color{red}{\huge{\textsf{Don’t be fooled.}}}$</p>
 
-
 </div>
 
 <p align="center"
@@ -20,6 +19,10 @@ $\large{\textsf{And I always have a GitHub under my nickname.}}$ $\color{red}{\l
 > [!CAUTION]
 > $\large{\textsf{I'm the evil biological mother, the one who bore this goddamn four-legged creature with extreme love.}}$ $\color{red}{\huge{\textsf{BEWARE.}}}$
 
+$\color{red}{\large{\textsf{I know about Pinterest and YouTube, huge tysm to everyone who keeps telling me about it <3}}}$
+$\large{\textsf{And I've never felt this much support before.}}$
+$\large{\textsf{Thanks to this situation, I've met wonderful people, so I'm even a little glad it happened, but still-}}$
+$\large{\textsf{If you see my smc without GitHub, please mention that the author didn’t give permission to publish it. Thank you!}}$
 
 <p align="center"
 <br> <img width="1000" src='https://github.com/amygdala-hippocampal/amygdala-hippocampal/blob/main/%D0%BC%D1%8F%D0%BA.png?raw=true'> 
