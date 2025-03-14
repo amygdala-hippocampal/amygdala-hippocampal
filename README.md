@@ -22,7 +22,7 @@ $\large{\textsf{And I always have a GitHub under my nickname.}}$ $\color{red}{\l
 $\color{red}{\large{\textsf{I know about Pinterest and YouTube, huge tysm to everyone who keeps telling me about it <3}}}$
 $\large{\textsf{And I've never felt this much support before.}}$
 $\large{\textsf{Thanks to this situation, I've met wonderful people, so I'm even a little glad it happened, but still-}}$
-$\large{\textsf{If you see my smc without GitHub, please mention that the author didn’t give permission to publish it. Thank you!}}$
+$\large{\textsf{If you see my smc skin without GitHub, please mention that the author didn’t give permission to publish it. Thank you!}}$
 
 <p align="center"
 <br> <img width="1000" src='https://github.com/amygdala-hippocampal/amygdala-hippocampal/blob/main/%D0%BC%D1%8F%D0%BA.png?raw=true'> 
