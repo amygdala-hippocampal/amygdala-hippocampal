@@ -24,6 +24,11 @@ $\large{\textsf{I've never felt so supported by concerned passersby before.}}$
 $\large{\textsf{Thanks to this situation, I've met wonderful people, so I'm even a little glad it happened, but still-}}$
 $\large{\textsf{If you see my smc skin without GitHub, please mention that the author didn’t give permission to publish it. Thank you!}}$
 
+$\large{\textsf{Upd:}}$
+<p align="center"
+<br> <img width="1000" src='https://github.com/user-attachments/assets/538a15a0-2f85-434c-8cf4-528f1860e570'> 
+</p> 
+  
 <p align="center"
 <br> <img width="1000" src='https://github.com/amygdala-hippocampal/amygdala-hippocampal/blob/main/%D0%BC%D1%8F%D0%BA.png?raw=true'> 
 </p> 
