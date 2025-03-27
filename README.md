@@ -32,6 +32,7 @@ $\large{\textsf{If you see my smc skin without GitHub, please mention that the a
 
 $\large{\textsf{LMAOOO dude you’re so funny, smearing yourself with shit and being happy about it X)}}$
 $\large{\textsf{You’re such a fan of me.}}$
+$\large{\textsf{My smc already posted on Pinterest, you’re a bit late, but you can keep acting like a crazy fan if you want.}}$
 
 <p align="center"
 <br> <img width="1000" src='https://github.com/amygdala-hippocampal/amygdala-hippocampal/blob/main/%D0%BC%D1%8F%D0%BA.png?raw=true'> 
