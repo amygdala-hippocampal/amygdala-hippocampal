@@ -30,9 +30,10 @@ $\large{\textsf{If you see my smc skin without GitHub, please mention that the a
 <br> <img width="1000" src='https://github.com/user-attachments/assets/760ad50d-27a9-4382-92ff-37fc7f60b874'>
 </p>
 
-$\large{\textsf{LMAOOO dude you’re so funny, smearing yourself with shit and being happy about it X)}}$
+$\large{\textsf{LMAOOO dude you’re so funny, smearing yourself with shit and being happy about it.}}$
 $\large{\textsf{You’re such a fan of me.}}$
 $\large{\textsf{My smc already posted on Pinterest, you’re a bit late, but you can keep acting like a crazy fan if you want.}}$
+$\large{\textsf{I have a job, and as for you, i can only wish you to get a life. :D}}$
 
 <p align="center"
 <br> <img width="1000" src='https://github.com/amygdala-hippocampal/amygdala-hippocampal/blob/main/%D0%BC%D1%8F%D0%BA.png?raw=true'> 
