@@ -32,7 +32,7 @@ $\large{\textsf{If you see my smc skin without GitHub, please mention that the a
 
 $\large{\textsf{LMAOOO dude you’re so funny, smearing yourself with shit and being happy about it.}}$
 $\large{\textsf{You’re such a fan of me.}}$
-$\large{\textsf{My smc already posted on Pinterest, you’re a bit late, but you can keep acting like a crazy fan if you want.}}$
+$\large{\textsf{My smc already posted on Pinterest, you’re a bit late, but you can keep acting like a crazy if you want.}}$
 $\large{\textsf{I have a job, and as for you, i can only wish you to get a life. :D}}$
 
 <p align="center"
