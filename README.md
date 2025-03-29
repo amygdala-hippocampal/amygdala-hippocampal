@@ -15,7 +15,7 @@
 > $\text{I'm the evil biological mother, the one who bore this goddamn four-legged creature with extreme love.}$ $\color{red}\{\text{BEWARE.}}$
 
 $\color{red}\{\text{I know about Pinterest and YouTube, huge tysm to everyone who keeps telling me about it <3}}$
-$\text{And I've never felt so supported by concerned passersby before.}$
+$\text{I've never felt so supported by concerned passersby before.}$
 $\text{Thanks to this situation, I've met wonderful people, so I'm even a little glad it happened, but still-}$
 $\text{If you see my smc skin without GitHub, please mention that the author didn’t give permission to publish it.}$
 $\text{Thank you!}$
@@ -30,7 +30,7 @@ $\text{LMAO dude you’re so funny, smearing yourself with shit and being happy 
 $\text{You’re such a fan of me.}$
 $\text{My smc already posted by someone else on Pinterest, you’re a bit late.}$
 $\text{But you can keep acting like a crazy if you want.}$
-$\text{I have a job, and as for you, i can only wish you to get a life. :D}$
+$\text{I have a job, and as for you, I can only wish you to get a life. :D}$
 
 <p align="center"
 <br> <img width="1000" src='https://github.com/amygdala-hippocampal/amygdala-hippocampal/blob/main/%D0%BC%D1%8F%D0%BA.png?raw=true'> 
