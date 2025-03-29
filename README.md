@@ -1,28 +1,24 @@
 
 <div align="center">
-  <h2><span>$\Huge{\textsf{I am the orig creator. Thank you.}}$</span></h2>
+<h3><span>$\text{I am the orig creator. Thank you.}$</span></h3>
 </div>
 
-
-<div align="center">
-
-$\large{\textsf{And I always have a GitHub under my nickname.}}$ $\color{red}{\large{\textsf{Don’t be fooled.}}}$
-
-<p $\color{red}{\huge{\textsf{Don’t be fooled.}}}$</p>
-
-</div>
+<p align="center"
+<br>$\color{red}{\textsf{And I always have a GitHub under my nickname.}}$
+</p> 
 
 <p align="center"
 <br> <img width="1000" src='https://github.com/user-attachments/assets/1ab87dfa-c73b-48d7-ac65-5b2efda14162'> 
 </p> 
 
 > [!CAUTION]
-> $\large{\textsf{I'm the evil biological mother, the one who bore this goddamn four-legged creature with extreme love.}}$ $\color{red}{\huge{\textsf{BEWARE.}}}$
+> $\text{I'm the evil biological mother, the one who bore this goddamn four-legged creature with extreme love.}$ $\color{red}\{\text{BEWARE.}}$
 
-$\color{red}{\large{\textsf{I know about Pinterest and YouTube, huge tysm to everyone who keeps telling me about it <3}}}$
-$\large{\textsf{I've never felt so supported by concerned passersby before.}}$
-$\large{\textsf{Thanks to this situation, I've met wonderful people, so I'm even a little glad it happened, but still-}}$
-$\large{\textsf{If you see my smc skin without GitHub, please mention that the author didn’t give permission to publish it. Thank you!}}$
+$\color{red}\{\text{I know about Pinterest and YouTube, huge tysm to everyone who keeps telling me about it <3}}$
+$\text{And I've never felt so supported by concerned passersby before.}$
+$\text{Thanks to this situation, I've met wonderful people, so I'm even a little glad it happened, but still-}$
+$\text{If you see my smc skin without GitHub, please mention that the author didn’t give permission to publish it.}$
+$\text{Thank you!}$
 
 
 <p align="center"
@@ -30,11 +26,11 @@ $\large{\textsf{If you see my smc skin without GitHub, please mention that the a
 <br> <img width="1000" src='https://github.com/user-attachments/assets/760ad50d-27a9-4382-92ff-37fc7f60b874'>
 </p>
 
-$\large{\textsf{LMAO dude you’re so funny, smearing yourself with shit and being happy about it.}}$
-$\large{\textsf{You’re such a fan of me.}}$
-$\large{\textsf{My smc already posted by someone else on Pinterest, you’re a bit late.}}$
-$\large{\textsf{But you can keep acting like a crazy if you want.}}$
-$\large{\textsf{I have a job, and as for you, i can only wish you to get a life. :D}}$
+$\text{LMAO dude you’re so funny, smearing yourself with shit and being happy about it.}$
+$\text{You’re such a fan of me.}$
+$\text{My smc already posted by someone else on Pinterest, you’re a bit late.}$
+$\text{But you can keep acting like a crazy if you want.}$
+$\text{I have a job, and as for you, i can only wish you to get a life. :D}$
 
 <p align="center"
 <br> <img width="1000" src='https://github.com/amygdala-hippocampal/amygdala-hippocampal/blob/main/%D0%BC%D1%8F%D0%BA.png?raw=true'> 
