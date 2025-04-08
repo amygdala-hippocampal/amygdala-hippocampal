@@ -3,6 +3,13 @@
 </p> 
 
 <p align="center"
+<br> ܇✦܆
+<br> <strong>𝚏𝚘𝚛 𝚛𝚞𝚜𝚜𝚒𝚊𝚗𝚜</strong>: 𝚜𝚝𝚛𝚊𝚠𝚙𝚊𝚐𝚎 𝚠𝚘𝚛𝚔𝚜 𝚠/𝚘 𝚟𝚙𝚗 (𝚜𝚕𝚘𝚠), 𝚌𝚊𝚛𝚛𝚍 & 𝚊𝚝𝚊𝚋𝚘𝚘𝚔 𝚛𝚎𝚚𝚞𝚒𝚛𝚎𝚜 𝚟𝚙𝚗
+<br> (strawpage работает без впн, но медленно, carrd – впн нужен, аtabook – впн так же нужен)
+<br> ܇✦܆
+</p> 
+
+<p align="center"
 <img width="500" src='https://github.com/user-attachments/assets/1ab87dfa-c73b-48d7-ac65-5b2efda14162'> 
 </p> 
 
