@@ -34,7 +34,7 @@
 <br> 𝚍𝚒𝚜𝚌𝚘𝚛𝚍 @ 𝚒𝚜 shuraleika ╳︎ @hq_npc 𝚏𝚘𝚛 𝚝𝚎𝚕𝚎𝚐𝚛𝚊𝚖
 <br> 𝚒 𝚑𝚊𝚟𝚎 <a href="https://en.pronouns.page/@mother-moth"> 𝚙𝚛𝚘𝚗𝚘𝚞𝚗𝚜 𝚙𝚊𝚐𝚎 𝚒𝚗 𝚎𝚗𝚐 [⚝] </a> 𝚊𝚗𝚍 <a href="https://ru.pronouns.page/@mother-moth"> 𝚛𝚞𝚜𝚜𝚒𝚊𝚗 𝚘𝚗𝚎 [✯] </a> 
 <br> »–𝚖𝚘𝚛𝚎 𝚋𝚎𝚕𝚘𝚠↴ </a> 
-<br> <a href="https://telegra.ph/hq-npc-info-01-07"> 𝚝𝚎𝚕𝚎𝚐𝚛𝚊𝚙𝚑 𝚒𝚗 𝚛𝚞𝚜𝚜𝚒𝚊𝚗 (𝚊𝚋𝚜𝚘𝚕𝚞𝚝𝚎𝚕𝚢 𝚞𝚗𝚝𝚛𝚊𝚗𝚜𝚕𝚊𝚝𝚊𝚋𝚕𝚎) [⚠︎] </a> 
+<br> <a href="https://telegra.ph/hq-npc-info-05-01"> 𝚝𝚎𝚕𝚎𝚐𝚛𝚊𝚙𝚑 𝚒𝚗 𝚛𝚞𝚜𝚜𝚒𝚊𝚗 (𝚊𝚋𝚜𝚘𝚕𝚞𝚝𝚎𝚕𝚢 𝚞𝚗𝚝𝚛𝚊𝚗𝚜𝚕𝚊𝚝𝚊𝚋𝚕𝚎) [⚠︎] </a> 
 <br> <a href="https://nyurchik.carrd.co"> 𝚌𝚊𝚛𝚛𝚍 [♡] </a> 
 <br> <a href="https://hqnpc.straw.page/"> -ˋˏ 𝚜𝚝𝚛𝚊𝚠𝚙𝚊𝚐𝚎 ˎˊ-</a> 
 <br> <a href="https://nyurch.atabook.org/"> ·₊⊹𝚊𝚝𝚊𝚋𝚘𝚘𝚔⊹₊· </a> 
