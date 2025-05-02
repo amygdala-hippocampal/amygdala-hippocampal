@@ -1,4 +1,3 @@
-![image](https://github.com/user-attachments/assets/968b13ba-d558-43fe-8976-bce9368c0cff)<p align="center"
 <br> <img width="1000" src='https://github.com/amygdala-hippocampal/amygdala-hippocampal/blob/main/%D0%BC%D1%8F%D0%BA.png?raw=true'> 
 </p> 
 
