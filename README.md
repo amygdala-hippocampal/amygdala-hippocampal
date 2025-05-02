@@ -1,4 +1,4 @@
-<p align="center"
+![image](https://github.com/user-attachments/assets/968b13ba-d558-43fe-8976-bce9368c0cff)<p align="center"
 <br> <img width="1000" src='https://github.com/amygdala-hippocampal/amygdala-hippocampal/blob/main/%D0%BC%D1%8F%D0%BA.png?raw=true'> 
 </p> 
 
@@ -25,8 +25,8 @@
 <p align="center"
 <br>┏━━━━━━⊹━━━━━━┓
 <br><sup>𝟶𝟻/𝟶𝟻/𝟸𝟶𝟶𝟸</sup> <img width="30" src='https://github.com/amygdala-hippocampal/amygdala-hippocampal/blob/main/%D1%81%D0%BA%D1%80%D0%B5%D0%BF%D0%BA%D0%B0.png?raw=true'><sup>𝚜𝚑𝚎/𝚑𝚎𝚛</sup><img width="21" src='https://github.com/amygdala-hippocampal/amygdala-hippocampal/blob/main/%D0%BF%D0%B8%D0%BD.png?raw=true'><sup>𝚛𝚞𝚜𝚜𝚒𝚊𝚗</sup>
-<br> <sup>𝚗𝚘 𝙳𝙽𝙸</sup>
-<br> <sup>𝚌+𝚑 𝚒𝚜 𝚘𝚔.ᐟ</sup>
+<br> <sup> 𝙸𝙽𝚃𝙹 𝟿𝟻𝟺 (𝟿𝚠𝟾)</sup> 
+<br> <sup>𝚗𝚘 𝙳𝙽𝙸</sup> <img width="15" src='https://github.com/amygdala-hippocampal/amygdala-hippocampal/blob/main/пинч.png?raw=true'> <sup>𝚌+𝚑 𝚒𝚜 𝚘𝚔.ᐟ</sup>
 <br>┗━━━━━━⊹━━━━━━┛
 
 <p align="center"
