@@ -1,6 +1,7 @@
 
 <p align="left"
 <br> hello! my skin was recently posted on youtube and pinterest without permission (this skin is cursed) so i'm attaching proof of authorship
+<br> DO NOT copy or inspo!
 <br> <img width="500" src='https://github.com/user-attachments/assets/c41b958e-d18c-4230-9ebd-3f425178fad7'>
 <br> i do have older screenshots as well but this one is the most illustrative. thank you <3
 </p> 
