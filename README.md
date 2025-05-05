@@ -1,10 +1,17 @@
+
+<p align="left"
+<br> hello! my skin was recently posted on youtube and pinterest without permission so i'm attaching proof of authorship
+<br> <img width="500" src='https://github.com/user-attachments/assets/c41b958e-d18c-4230-9ebd-3f425178fad7'>
+<br> i do have older screenshots as well but this one is the most illustrative. thank you <3
+</p> 
+
 <br> <img width="1000" src='https://github.com/amygdala-hippocampal/amygdala-hippocampal/blob/main/%D0%BC%D1%8F%D0%BA.png?raw=true'> 
 </p> 
 
 <p align="center"
 <br> .܇✦܆.
 <br> <strong>𝚏𝚘𝚛 𝚛𝚞𝚜𝚜𝚒𝚊𝚗𝚜</strong>: 𝚙𝚛𝚘𝚗𝚘𝚞𝚗𝚜.𝚙𝚊𝚐𝚎, 𝚜𝚝𝚛𝚊𝚠𝚙𝚊𝚐𝚎 𝚊𝚗𝚍 𝚌𝚊𝚛𝚛𝚍 𝚠𝚘𝚛𝚔 𝚠/𝚘 𝚟𝚙𝚗 (𝚜𝚕𝚘𝚠), 𝚊𝚝𝚊𝚋𝚘𝚘𝚔 𝚛𝚎𝚚𝚞𝚒𝚛𝚎 𝚟𝚙𝚗
-<br> (𝚜𝚝𝚛𝚊𝚠𝚙𝚊𝚐𝚎, 𝚙𝚛𝚘𝚗𝚘𝚞𝚗𝚜.𝚙𝚊𝚐𝚎 и 𝚌𝚊𝚛𝚛𝚍 работают без впн, но медленно; для 𝚊𝚝𝚊𝚋𝚘𝚘𝚔 впн нужен)
+<br> (𝚜𝚝𝚛𝚊𝚠𝚙𝚊𝚐𝚎, 𝚙𝚛𝚘𝚗𝚘𝚞𝚗𝚜.𝚙𝚊𝚐𝚎 и 𝚌𝚊𝚛𝚛𝚍 пашут без впн, но медленно; для 𝚊𝚝𝚊𝚋𝚘𝚘𝚔 впн нужен)
 <br> ‧܇✦܆‧
 </p> 
 
