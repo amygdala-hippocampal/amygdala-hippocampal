@@ -1,5 +1,5 @@
 > [!IMPORTANT]
-> _04:12["IM FALLING" CRK DNC] whispers: Yo are you *****? I saw that skin on pinterest_
+> _04:12 whispers: Yo are you *****? I saw that skin on pinterest_
 <br> hello! my skin was recently posted on youtube and pinterest without permission (AGAIN. this skin is cursed) 
 <br> so i'm attaching proof of authorship
 <br> <img width="500" src='https://github.com/user-attachments/assets/c41b958e-d18c-4230-9ebd-3f425178fad7'>
