@@ -1,6 +1,7 @@
 > [!IMPORTANT]
 > _04:12 whispers: Yo are you *****? I saw that skin on pinterest_
 <br> hello! my skin was recently posted on youtube and pinterest without permission (AGAIN. this skin is cursed) 
+<br> and people tell me about it a lot
 <br> so i'm attaching proof of authorship
 <br> <img width="500" src='https://github.com/user-attachments/assets/c41b958e-d18c-4230-9ebd-3f425178fad7'>
 <br> i do have older screenshots as well but this one is the most illustrative. DO NOT copy. thank you <3
