@@ -59,11 +59,6 @@
   <img src="https://komarev.com/ghpvc/?username=amygdala-hippocampal&style=for-the-badge&color=998973" alt="Profile Views"/>
 </p>
 
-<p align="center"
-<br> <img width="350" src='https://github.com/user-attachments/assets/977c096b-5f0a-4236-88ba-c7481902a549'> 
-<br> what am i even doing
-</p> 
-
 <div align="center">
 <video src="https://github.com/user-attachments/assets/475f7691-3079-4d3a-b08b-c530dd50d29f"
 </div>
