@@ -1,6 +1,6 @@
 > [!IMPORTANT]
 > _04:12 whispers: Yo are you *****? I saw that skin on pinterest_
-<br> hello! my skin was recently posted on youtube and pinterest without permission (AGAIN. this skin is cursed) 
+<br> hello! my skin was recently posted on youtube and pinterest without permission (this skin is cursed) 
 <br> and people tell me about it a lot
 <br> so i'm attaching proof of authorship
 <br> <img width="500" src='https://github.com/user-attachments/assets/c41b958e-d18c-4230-9ebd-3f425178fad7'>
@@ -8,13 +8,6 @@
 
 </p> 
 <br> <img width="1000" src='https://github.com/amygdala-hippocampal/amygdala-hippocampal/blob/main/%D0%BC%D1%8F%D0%BA.png?raw=true'> 
-</p> 
-
-<p align="center"
-<br> .܇✦܆.
-<br> <strong>𝚏𝚘𝚛 𝚛𝚞𝚜𝚜𝚒𝚊𝚗𝚜</strong>: 𝚙𝚛𝚘𝚗𝚘𝚞𝚗𝚜.𝚙𝚊𝚐𝚎, 𝚜𝚝𝚛𝚊𝚠𝚙𝚊𝚐𝚎 𝚊𝚗𝚍 𝚌𝚊𝚛𝚛𝚍 𝚠𝚘𝚛𝚔 𝚠/𝚘 𝚟𝚙𝚗 (𝚜𝚕𝚘𝚠), 𝚊𝚝𝚊𝚋𝚘𝚘𝚔 𝚛𝚎𝚚𝚞𝚒𝚛𝚎 𝚟𝚙𝚗
-<br> (𝚜𝚝𝚛𝚊𝚠𝚙𝚊𝚐𝚎, 𝚙𝚛𝚘𝚗𝚘𝚞𝚗𝚜.𝚙𝚊𝚐𝚎 и 𝚌𝚊𝚛𝚛𝚍 пашут без впн, но медленно; для 𝚊𝚝𝚊𝚋𝚘𝚘𝚔 впн нужен)
-<br> ‧܇✦܆‧
 </p> 
 
 <p align="center"
@@ -41,11 +34,9 @@
 <br> 𝚖𝚘𝚜𝚝𝚕𝚢 𝚘𝚏𝚏𝚝𝚊𝚋/𝙰𝙵𝙺 𝚜𝚘 <strong>𝚆𝟸𝙸</strong>
 <br> 𝚍𝚒𝚜𝚌𝚘𝚛𝚍 @ 𝚒𝚜 shuraleika ╳︎ @hq_npc 𝚏𝚘𝚛 𝚝𝚎𝚕𝚎𝚐𝚛𝚊𝚖
 <br> 𝚒 𝚑𝚊𝚟𝚎 <a href="https://en.pronouns.page/@mother-moth"> 𝚙𝚛𝚘𝚗𝚘𝚞𝚗𝚜 𝚙𝚊𝚐𝚎 𝚒𝚗 𝚎𝚗𝚐 [⚝] </a> 𝚊𝚗𝚍 <a href="https://ru.pronouns.page/@mother-moth"> 𝚛𝚞𝚜𝚜𝚒𝚊𝚗 𝚘𝚗𝚎 [✯] </a> 
-<br> »–𝚖𝚘𝚛𝚎 𝚋𝚎𝚕𝚘𝚠↴ </a> 
-<br> <a href="https://telegra.ph/hq-npc-info-05-01"> 𝚝𝚎𝚕𝚎𝚐𝚛𝚊𝚙𝚑 𝚒𝚗 𝚛𝚞𝚜𝚜𝚒𝚊𝚗 (𝚊𝚋𝚜𝚘𝚕𝚞𝚝𝚎𝚕𝚢 𝚞𝚗𝚝𝚛𝚊𝚗𝚜𝚕𝚊𝚝𝚊𝚋𝚕𝚎) [⚠︎] </a> 
+<br> 𝚖𝚘𝚛𝚎 𝚋𝚎𝚕𝚘𝚠
 <br> <a href="https://nyurchik.carrd.co"> 𝚌𝚊𝚛𝚛𝚍 [♡] </a> 
 <br> <a href="https://hqnpc.straw.page/"> -ˋˏ 𝚜𝚝𝚛𝚊𝚠𝚙𝚊𝚐𝚎 ˎˊ-</a> 
-<br> <a href="https://nyurch.atabook.org/"> ·₊⊹𝚊𝚝𝚊𝚋𝚘𝚘𝚔⊹₊· </a> 
 </p>
 <p align="center"
 <br> <img width="350" src='https://github.com/amygdala-hippocampal/amygdala-hippocampal/blob/main/%D0%B2%20%D0%BB%D0%B5%D1%81%D1%83%20%D1%82%D0%B0%D0%BD%D1%86%D1%8B.png?raw=true'> 
