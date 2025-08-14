@@ -16,7 +16,7 @@
 
 <p align="center"
 <br> <img width="300" src='https://github.com/amygdala-hippocampal/amygdala-hippocampal/blob/main/%D0%B4%D0%BE%D0%BC.png?raw=true'>
-<br>ＮＹＵＲＣＨＩＫ 
+<br>𝚂 𝙷 𝙸 𝙽 𝙰
 </p> 
 
 <p align="center"> 
