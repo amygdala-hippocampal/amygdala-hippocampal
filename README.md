@@ -4,7 +4,7 @@
 <br> and people tell me about it a lot
 <br> so i'm attaching proof of authorship
 <br> <img width="500" src='https://github.com/user-attachments/assets/c41b958e-d18c-4230-9ebd-3f425178fad7'>
-<br> i do have older screenshots as well but this one is the most illustrative. DO NOT copy. thank you <3
+<br> to avoid misunderstandings! thank you <3
 
 </p> 
 <br> <img width="1000" src='https://github.com/amygdala-hippocampal/amygdala-hippocampal/blob/main/%D0%BC%D1%8F%D0%BA.png?raw=true'> 
