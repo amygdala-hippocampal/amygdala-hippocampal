@@ -1,10 +1,9 @@
 > [!IMPORTANT]
 > _04:12 whispers: Yo are you *****? I saw that skin on pinterest_
-<br> my skin was recently posted on youtube and pinterest without permission
-<br> and people tell me about it A LOT
+<br> my skin was posted on youtube and pinterest without permission
+<br> and people tell me about it A LOT 
 <br> so i'm attaching proof of authorship to avoid misunderstandings
 <br> <img width="500" src='https://github.com/user-attachments/assets/c41b958e-d18c-4230-9ebd-3f425178fad7'>
-<br> thank you <3
 
 </p> 
 <br> <img width="1000" src='https://github.com/amygdala-hippocampal/amygdala-hippocampal/blob/main/%D0%BC%D1%8F%D0%BA.png?raw=true'> 
