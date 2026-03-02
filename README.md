@@ -1,12 +1,4 @@
-</p> 
-<br> <img width="650" src='https://github.com/user-attachments/assets/f16d9a5f-7986-48e2-95b5-3a2b571c287d'> 
-</p>
-
-</p> 
-<br> <img width="1000" src='https://github.com/amygdala-hippocampal/amygdala-hippocampal/blob/main/%D0%BC%D1%8F%D0%BA.png?raw=true'> 
-</p> 
-
-<p align="center"
+ <p align="center"
 <img width="500" src='https://github.com/user-attachments/assets/1ab87dfa-c73b-48d7-ac65-5b2efda14162'> 
 </p> 
 
@@ -20,11 +12,11 @@
 </p>.·₊
  
 <p align="center"
-<br>┏━━━━━━━━⊹━━━━━━━━┓
+<br>┏━━━━━━━⊹━━━━━━━┓
 <br><sup>𝟶𝟻/𝟶𝟻/𝟸𝟶𝟶𝟸</sup> <img width="30" src='https://github.com/amygdala-hippocampal/amygdala-hippocampal/blob/main/%D1%81%D0%BA%D1%80%D0%B5%D0%BF%D0%BA%D0%B0.png?raw=true'><sup>𝚜𝚑𝚎/𝚑𝚎𝚛</sup><img width="21" src='https://github.com/amygdala-hippocampal/amygdala-hippocampal/blob/main/%D0%BF%D0%B8%D0%BD.png?raw=true'><sup>𝚛𝚞𝚜𝚜𝚒𝚊𝚗</sup>
 <br> <sup> 𝙸𝙽𝚃𝙹 <img width="15" src='https://github.com/amygdala-hippocampal/amygdala-hippocampal/blob/main/пинч.png?raw=true'> 𝚗𝚘 𝙳𝙽𝙸 
 <br> <sup>𝚌+𝚑 𝚒𝚜 𝚘𝚔 𝚒𝚏 𝚖𝚢 𝚏𝚛𝚒𝚎𝚗𝚍𝚜 𝚍𝚘𝚗'𝚝 𝚖𝚒𝚗𝚍</sup>
-<br>┗━━━━━━━━⊹━━━━━━━━┛
+<br>┗━━━━━━━━━⊹━━━━━━━━━┛
 
 <p align="center"
 <br> 𝚖𝚘𝚜𝚝𝚕𝚢 𝚘𝚏𝚏𝚝𝚊𝚋/𝙰𝙵𝙺 𝚜𝚘 <strong>𝚆𝟸𝙸</strong>
