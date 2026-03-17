@@ -15,12 +15,11 @@
 <br>┏━━━━━━━⊹━━━━━━━┓
 <br><sup>𝟶𝟻/𝟶𝟻/𝟸𝟶𝟶𝟸</sup> <img width="30" src='https://github.com/amygdala-hippocampal/amygdala-hippocampal/blob/main/%D1%81%D0%BA%D1%80%D0%B5%D0%BF%D0%BA%D0%B0.png?raw=true'><sup>𝚜𝚑𝚎/𝚑𝚎𝚛</sup><img width="21" src='https://github.com/amygdala-hippocampal/amygdala-hippocampal/blob/main/%D0%BF%D0%B8%D0%BD.png?raw=true'><sup>𝚛𝚞𝚜𝚜𝚒𝚊𝚗</sup>
 <br> <sup> 𝙸𝙽𝚃𝙹 549 [?] <img width="15" src='https://github.com/amygdala-hippocampal/amygdala-hippocampal/blob/main/пинч.png?raw=true'> 𝚗𝚘 𝙳𝙽𝙸 
-<br> <sup>𝚌+𝚑 𝚒𝚜 𝚘𝚔 𝚒𝚏 𝚖𝚢 𝚏𝚛𝚒𝚎𝚗𝚍𝚜 𝚍𝚘𝚗'𝚝 𝚖𝚒𝚗𝚍</sup>
+<br> 𝚌+𝚑 𝚒𝚜 𝚘𝚔 𝚒𝚏 𝚖𝚢 𝚏𝚛𝚒𝚎𝚗𝚍𝚜 𝚍𝚘𝚗'𝚝 𝚖𝚒𝚗𝚍
 <br>┗━━━━━━━━━⊹━━━━━━━━━┛
 
 <p align="center"
 <br> 𝚖𝚘𝚜𝚝𝚕𝚢 𝚘𝚏𝚏𝚝𝚊𝚋/𝙰𝙵𝙺 𝚜𝚘 <strong>𝚆𝟸𝙸</strong>
-<br> 𝚍𝚒𝚜𝚌𝚘𝚛𝚍 @ 𝚒𝚜 shuraleika ╳︎ @hq_npc 𝚏𝚘𝚛 𝚝𝚎𝚕𝚎𝚐𝚛𝚊𝚖
 <br> 𝚒 𝚑𝚊𝚟𝚎 <a href="https://en.pronouns.page/@mother-moth"> 𝚙𝚛𝚘𝚗𝚘𝚞𝚗𝚜 𝚙𝚊𝚐𝚎 𝚒𝚗 𝚎𝚗𝚐 [⚝] </a> 𝚊𝚗𝚍 <a href="https://ru.pronouns.page/@mother-moth"> 𝚛𝚞𝚜𝚜𝚒𝚊𝚗 𝚘𝚗𝚎 [✯] </a> 
 </p>
 <p align="center"
