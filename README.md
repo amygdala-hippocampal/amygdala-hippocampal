@@ -1,4 +1,8 @@
- <p align="center"
+<p align="center"
+<br> <img width="1000" src='https://github.com/amygdala-hippocampal/amygdala-hippocampal/blob/main/%D0%BC%D1%8F%D0%BA.png?raw=true'> 
+</p> 
+
+<p align="center"
 <img width="500" src='https://github.com/user-attachments/assets/1ab87dfa-c73b-48d7-ac65-5b2efda14162'> 
 </p> 
 
