@@ -28,8 +28,8 @@
 </p> 
  
 <p align="center"
-<br> 𝚖𝚘𝚜𝚝𝚕𝚢 𝚘𝚏𝚏𝚝𝚊𝚋/𝙰𝙵𝙺 𝚜𝚘 <strong>𝚆𝟸𝙸</strong>
-<br> 𝚒 𝚑𝚊𝚟𝚎 <a href="https://en.pronouns.page/@mother-moth"> 𝚙𝚛𝚘𝚗𝚘𝚞𝚗𝚜 𝚙𝚊𝚐𝚎 𝚒𝚗 𝚎𝚗𝚐 [⚝] </a> 𝚊𝚗𝚍 <a href="https://ru.pronouns.page/@mother-moth"> 𝚛𝚞𝚜𝚜𝚒𝚊𝚗 𝚘𝚗𝚎 [✯] </a> 
+<br>  <sup> 𝚖𝚘𝚜𝚝𝚕𝚢 𝚘𝚏𝚏𝚝𝚊𝚋/𝙰𝙵𝙺 𝚜𝚘 <strong>𝚆𝟸𝙸</strong> </sup>
+<br> <sup> 𝚒 𝚑𝚊𝚟𝚎 <a href="https://en.pronouns.page/@mother-moth"> 𝚙𝚛𝚘𝚗𝚘𝚞𝚗𝚜 𝚙𝚊𝚐𝚎 𝚒𝚗 𝚎𝚗𝚐 [⚝] </a> 𝚊𝚗𝚍 <a href="https://ru.pronouns.page/@mother-moth"> 𝚛𝚞𝚜𝚜𝚒𝚊𝚗 𝚘𝚗𝚎 [✯] </a> </sup>
 </p>
 <p align="center"
 <br> <img width="350" src='https://github.com/amygdala-hippocampal/amygdala-hippocampal/blob/main/%D0%B2%20%D0%BB%D0%B5%D1%81%D1%83%20%D1%82%D0%B0%D0%BD%D1%86%D1%8B.png?raw=true'> 
