@@ -16,7 +16,7 @@
 </p>.·₊
  
 <p align="center"
-<br>┏━━━━━━━━━━⊹━━━━━━━━━━┓
+<br>┏━━━━━━━━⊹━━━━━━━━┓
 </p> 
 <p align="center"
 <br><sup> 𝟶𝟻/𝟶𝟻/𝟸𝟶𝟶𝟸</sup> <img width="30" src='https://github.com/amygdala-hippocampal/amygdala-hippocampal/blob/main/%D1%81%D0%BA%D1%80%D0%B5%D0%BF%D0%BA%D0%B0.png?raw=true'><sup>𝚜𝚑𝚎/𝚑𝚎𝚛</sup><img width="21" src='https://github.com/amygdala-hippocampal/amygdala-hippocampal/blob/main/%D0%BF%D0%B8%D0%BD.png?raw=true'><sup>𝚛𝚞𝚜𝚜𝚒𝚊𝚗</sup>
@@ -24,7 +24,7 @@
 <br> 𝚗𝚘𝚝 𝚕𝚘𝚘𝚔𝚒𝚗𝚐 𝚏𝚘𝚛 𝚏𝚛𝚒𝚎𝚗𝚍𝚜 <img width="15" src='https://github.com/amygdala-hippocampal/amygdala-hippocampal/blob/main/%D1%87%D0%B5%20%D1%82%D1%8B%20%D1%82%D1%83%D1%82%20%D1%80%D1%8B%D1%89%D0%B5%D1%88%D1%8C.png?raw=true'> 𝚗𝚘 𝙳𝙽𝙸
 </p> 
 <p align="center"
-<br>┗━━━━━━━━━━⊹━━━━━━━━━━┛
+<br>┗━━━━━━━━⊹━━━━━━━━┛
 </p> 
  
 <p align="center"
