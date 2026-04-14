@@ -22,16 +22,16 @@
 <br><sup> 𝟶𝟻/𝟶𝟻/𝟸𝟶𝟶𝟸</sup> <img width="30" src='https://github.com/amygdala-hippocampal/amygdala-hippocampal/blob/main/%D1%81%D0%BA%D1%80%D0%B5%D0%BF%D0%BA%D0%B0.png?raw=true'><sup>𝚜𝚑𝚎/𝚑𝚎𝚛</sup><img width="21" src='https://github.com/amygdala-hippocampal/amygdala-hippocampal/blob/main/%D0%BF%D0%B8%D0%BD.png?raw=true'><sup>𝚛𝚞𝚜𝚜𝚒𝚊𝚗</sup>
 <br> <sup> 𝙸𝙽𝚃𝙹 549 <img width="15" src='https://github.com/amygdala-hippocampal/amygdala-hippocampal/blob/main/%D1%87%D0%B5%D0%BC%20%D1%8F%20%D0%B7%D0%B0%D0%BD%D0%B8%D0%BC%D0%B0%D1%8E%D1%81%D1%8C.png?raw=true'>  𝚜𝚙/𝚜𝚡 𝟻
 <br> 𝚗𝚘𝚝 𝚕𝚘𝚘𝚔𝚒𝚗𝚐 𝚏𝚘𝚛 𝚏𝚛𝚒𝚎𝚗𝚍𝚜 <img width="15" src='https://github.com/amygdala-hippocampal/amygdala-hippocampal/blob/main/%D1%87%D0%B5%20%D1%82%D1%8B%20%D1%82%D1%83%D1%82%20%D1%80%D1%8B%D1%89%D0%B5%D1%88%D1%8C.png?raw=true'> 𝚗𝚘 𝙳𝙽𝙸
-<br> 𝚍𝚘𝚗'𝚝 𝚖𝚒𝚗𝚍 𝚘𝚗𝚎-𝚘𝚏𝚏 𝚌𝚑𝚊𝚝𝚜 𝚘𝚛 𝚘𝚌𝚌𝚊𝚜𝚒𝚘𝚗𝚊𝚕 𝚊𝚌𝚚𝚞𝚊𝚒𝚗𝚝𝚊𝚗𝚌𝚎𝚜
-<br> 𝚌+𝚑 𝚒𝚜 𝚏𝚒𝚗𝚎 𝚒𝚏 𝚖𝚢 𝚏𝚛𝚒𝚎𝚗𝚍𝚜 𝚘𝚔 𝚠𝚒𝚝𝚑 𝚒𝚝
 </p> 
 <p align="center"
 <br>┗━━━━━━━━━━⊹━━━━━━━━━━┛
 </p> 
  
 <p align="center"
-<br>  <sup> 𝚖𝚘𝚜𝚝𝚕𝚢 𝚘𝚏𝚏𝚝𝚊𝚋/𝙰𝙵𝙺 𝚜𝚘 <strong>𝚆𝟸𝙸</strong> </sup>
-<br> <sup> 𝚒 𝚑𝚊𝚟𝚎 <a href="https://en.pronouns.page/@mother-moth"> 𝚙𝚛𝚘𝚗𝚘𝚞𝚗𝚜 𝚙𝚊𝚐𝚎 𝚒𝚗 𝚎𝚗𝚐 [⚝] </a> 𝚊𝚗𝚍 <a href="https://ru.pronouns.page/@mother-moth"> 𝚛𝚞𝚜𝚜𝚒𝚊𝚗 𝚘𝚗𝚎 [✯] </a> </sup>
+<br> <sup> 𝚌+𝚑 𝚒𝚜 𝚏𝚒𝚗𝚎 𝚒𝚏 𝚖𝚢 𝚏𝚛𝚒𝚎𝚗𝚍𝚜 𝚘𝚔 𝚠𝚒𝚝𝚑 𝚒𝚝 </sup>
+<br> <sup> 𝚖𝚘𝚜𝚝𝚕𝚢 𝚘𝚏𝚏𝚝𝚊𝚋/𝙰𝙵𝙺 𝚜𝚘 <strong>𝚆𝟸𝙸</strong> </sup>
+<br> <sup> 𝙸 𝚑𝚊𝚟𝚎 <a href="https://en.pronouns.page/@mother-moth"> 𝚙𝚛𝚘𝚗𝚘𝚞𝚗𝚜 𝚙𝚊𝚐𝚎 𝚒𝚗 𝚎𝚗𝚐 [⚝] </a> 𝚊𝚗𝚍 <a href="https://ru.pronouns.page/@mother-moth"> 𝚛𝚞𝚜𝚜𝚒𝚊𝚗 𝚘𝚗𝚎 [✯] </a> </sup>
+<br> <sup> 𝚍𝚘𝚗'𝚝 𝚖𝚒𝚗𝚍 𝚘𝚗𝚎-𝚘𝚏𝚏 𝚌𝚑𝚊𝚝𝚜 𝚘𝚛 𝚘𝚌𝚌𝚊𝚜𝚒𝚘𝚗𝚊𝚕 𝚊𝚌𝚚𝚞𝚊𝚒𝚗𝚝𝚊𝚗𝚌𝚎𝚜 </sup>
 </p>
 <p align="center"
 <br> <img width="350" src='https://github.com/amygdala-hippocampal/amygdala-hippocampal/blob/main/%D0%B2%20%D0%BB%D0%B5%D1%81%D1%83%20%D1%82%D0%B0%D0%BD%D1%86%D1%8B.png?raw=true'> 
