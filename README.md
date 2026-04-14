@@ -20,7 +20,7 @@
 </p> 
 <p align="center"
 <br><sup> 𝟶𝟻/𝟶𝟻/𝟸𝟶𝟶𝟸</sup> <img width="30" src='https://github.com/amygdala-hippocampal/amygdala-hippocampal/blob/main/%D1%81%D0%BA%D1%80%D0%B5%D0%BF%D0%BA%D0%B0.png?raw=true'><sup>𝚜𝚑𝚎/𝚑𝚎𝚛</sup><img width="21" src='https://github.com/amygdala-hippocampal/amygdala-hippocampal/blob/main/%D0%BF%D0%B8%D0%BD.png?raw=true'><sup>𝚛𝚞𝚜𝚜𝚒𝚊𝚗</sup>
-<br> <sup> 𝙸𝙽𝚃𝙹 549 <img width="15" src='https://github.com/amygdala-hippocampal/amygdala-hippocampal/blob/main/пинч.png?raw=true'>  𝚜𝚙/𝚜𝚡 𝟻
+<br> <sup> 𝙸𝙽𝚃𝙹 549 <img width="15" src='https://github.com/amygdala-hippocampal/amygdala-hippocampal/blob/main/%D1%87%D0%B5%D0%BC%20%D1%8F%20%D0%B7%D0%B0%D0%BD%D0%B8%D0%BC%D0%B0%D1%8E%D1%81%D1%8C.png?raw=true'>  𝚜𝚙/𝚜𝚡 𝟻
 <br> 𝚗𝚘𝚝 𝚕𝚘𝚘𝚔𝚒𝚗𝚐 𝚏𝚘𝚛 𝚏𝚛𝚒𝚎𝚗𝚍𝚜 <img width="26" src='https://github.com/amygdala-hippocampal/amygdala-hippocampal/blob/main/%D0%90%D0%90%20%D0%9F%D0%9E%D0%9C%D0%9E%D0%93%D0%98%D0%A2%D0%95.png?raw=true'> 𝚗𝚘 𝙳𝙽𝙸
 <br> 𝚋𝚞𝚝 𝙸'𝚖 𝚘𝚙𝚎𝚗 𝚝𝚘 𝚘𝚌𝚌𝚊𝚜𝚒𝚘𝚗𝚊𝚕 𝚌𝚑𝚊𝚝𝚜 𝚘𝚛 𝚌𝚊𝚜𝚞𝚊𝚕 𝚊𝚌𝚚𝚞𝚊𝚒𝚗𝚝𝚊𝚗𝚌𝚎𝚜
 <br> 𝚌+𝚑 𝚒𝚜 𝚏𝚒𝚗𝚎 𝚒𝚏 𝚖𝚢 𝚏𝚛𝚒𝚎𝚗𝚍𝚜 𝚍𝚘𝚗'𝚝 𝚖𝚒𝚗𝚍
