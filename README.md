@@ -2,6 +2,7 @@
 <br> <img width="1000" src='https://github.com/amygdala-hippocampal/amygdala-hippocampal/blob/main/%D0%BC%D1%8F%D0%BA.png?raw=true'> 
 </p> 
 
+
 <p align="center"
 <img width="500" src='https://github.com/user-attachments/assets/1ab87dfa-c73b-48d7-ac65-5b2efda14162'> 
 </p> 
@@ -10,6 +11,13 @@
 <br> <img width="300" src='https://github.com/amygdala-hippocampal/amygdala-hippocampal/blob/main/%D0%B4%D0%BE%D0%BC.png?raw=true'>
 <br>ＳＨＥＥＮＡ / ＳＨＩＮＡ
 </p> 
+
+<p align="center">
+  <a href="https://github.com/kittinan/spotify-github-profile">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31a3522ehk5z7d52gvca6ize6wwi&cover_image=true&theme=novatorem&show_offline=false&background_color=000000&interchange=false&profanity=false&bar_color=709159&bar_color_cover=false">
+  </a>
+</p>
+
 
 <p align="center"> 
 ⊹₊·<img width="400" src="https://github.com/amygdala-hippocampal/amygdala-hippocampal/blob/main/%D1%83%D1%81%D1%82%D0%B0%D0%BB%D1%8B%D0%B5%20%D0%BF%D0%BE%D0%B7%D0%B2%D0%BE%D0%BD%D0%BA%D0%B8.png?raw=true"
