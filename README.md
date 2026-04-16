@@ -2,6 +2,11 @@
 <br> <img width="1000" src='https://github.com/amygdala-hippocampal/amygdala-hippocampal/blob/main/%D0%BC%D1%8F%D0%BA.png?raw=true'> 
 </p> 
 
+<p align="center">
+  <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=31a3522ehk5z7d52gvca6ize6wwi&redirect=true">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31a3522ehk5z7d52gvca6ize6wwi&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=89a871&bar_color_cover=false">
+  </a>
+</p>
 
 <p align="center"
 <img width="500" src='https://github.com/user-attachments/assets/1ab87dfa-c73b-48d7-ac65-5b2efda14162'> 
@@ -12,11 +17,6 @@
 <br>ＳＨＥＥＮＡ / ＳＨＩＮＡ
 </p> 
 
-<p align="center">
-  <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=31a3522ehk5z7d52gvca6ize6wwi&redirect=true">
-    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31a3522ehk5z7d52gvca6ize6wwi&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=false&profanity=false&bar_color=89a871&bar_color_cover=false">
-  </a>
-</p>
 
 
 <p align="center"> 
