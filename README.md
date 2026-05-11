@@ -36,9 +36,10 @@
 </p> 
  
 <p align="center"
-<br> <sup> 𝚋𝚞𝚝 𝙸 𝚠𝚘𝚗'𝚝 𝚋𝚎 𝚢𝚘𝚞𝚛 𝚏𝚛𝚒𝚎𝚗𝚍 𝚒𝚏 𝚢𝚘𝚞'𝚛𝚎 < 𝟷𝟽 </sup>
-<br> <sup> 𝚌+𝚑 𝚒𝚜 𝚏𝚒𝚗𝚎 𝚒𝚏 𝙸'𝚖 𝚊𝚕𝚘𝚗𝚎 </sup>
+<br> <sup> 𝙸 𝚠𝚘𝚗'𝚝 𝚋𝚎 𝚢𝚘𝚞𝚛 𝚏𝚛𝚒𝚎𝚗𝚍 𝚒𝚏 𝚢𝚘𝚞'𝚛𝚎 <strong> < 𝟷𝟽 </strong>  </sup>
+<br> <sup> <strong>𝚌+𝚑</strong> 𝚒𝚜 𝚏𝚒𝚗𝚎 𝚒𝚏 𝙸'𝚖 𝚊𝚕𝚘𝚗𝚎 </sup>
 <br> <sup> 𝚖𝚘𝚜𝚝𝚕𝚢 𝚘𝚏𝚏𝚝𝚊𝚋/𝙰𝙵𝙺 𝚜𝚘 <strong>𝚆𝟸𝙸</strong> </sup>
+<br> <sup> 𝙸 <strong>𝚍𝚘𝚗'𝚝 𝚑𝚒𝚍𝚎</strong> 𝚠𝚒𝚝𝚑𝚘𝚞𝚝 𝚛𝚎𝚊𝚜𝚘𝚗; 𝚗𝚘 𝚋𝚕𝚘𝚌𝚔𝚎𝚍 𝚙𝚕𝚊𝚢𝚎𝚛𝚜 𝚛𝚗 </sup>
 <br> <sup> 𝙸 𝚑𝚊𝚟𝚎 <a href="https://en.pronouns.page/@mother-moth"> 𝚙𝚛𝚘𝚗𝚘𝚞𝚗𝚜 𝚙𝚊𝚐𝚎 𝚒𝚗 𝚎𝚗𝚐 </a> 𝚊𝚗𝚍 𝚊 <a href="https://ru.pronouns.page/@mother-moth"> 𝚛𝚞𝚜𝚜𝚒𝚊𝚗 𝚘𝚗𝚎 </a> </sup>
 <br> <sup> 𝚘𝚗𝚎-𝚘𝚏𝚏 𝚌𝚑𝚊𝚝𝚜 𝚘𝚛 𝚘𝚌𝚌𝚊𝚜𝚒𝚘𝚗𝚊𝚕 𝚊𝚌𝚚𝚞𝚊𝚒𝚗𝚝𝚊𝚗𝚌𝚎𝚜 𝚊𝚛𝚎 𝚘𝚔 </sup>
 </p>
