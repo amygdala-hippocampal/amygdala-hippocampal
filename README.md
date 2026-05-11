@@ -36,7 +36,7 @@
 </p> 
  
 <p align="center"
-<br> <sup> 𝙸 𝚠𝚘𝚗'𝚝 𝚋𝚎 𝚢𝚘𝚞𝚛 𝚏𝚛𝚒𝚎𝚗𝚍 𝚒𝚏 𝚢𝚘𝚞'𝚛𝚎 <strong> < 𝟷𝟽 </strong>  </sup>
+<br> <sup> 𝙸 𝚠𝚘𝚗'𝚝 𝚋𝚎 𝚢𝚘𝚞𝚛 𝚏𝚛𝚒𝚎𝚗𝚍 𝚒𝚏 𝚢𝚘𝚞'𝚛𝚎 <strong> < 𝟷𝟾 </strong>  </sup>
 <br> <sup> <strong>𝚌+𝚑</strong> 𝚒𝚜 𝚏𝚒𝚗𝚎 𝚒𝚏 𝙸'𝚖 𝚊𝚕𝚘𝚗𝚎 </sup>
 <br> <sup> 𝚖𝚘𝚜𝚝𝚕𝚢 𝚘𝚏𝚏𝚝𝚊𝚋/𝙰𝙵𝙺 𝚜𝚘 <strong>𝚆𝟸𝙸</strong> </sup>
 <br> <sup> 𝙸 <strong>𝚍𝚘𝚗'𝚝 𝚑𝚒𝚍𝚎</strong> 𝚠𝚒𝚝𝚑𝚘𝚞𝚝 𝚛𝚎𝚊𝚜𝚘𝚗; 𝚗𝚘 𝚋𝚕𝚘𝚌𝚔𝚎𝚍 𝚙𝚕𝚊𝚢𝚎𝚛𝚜 𝚛𝚗 </sup>
