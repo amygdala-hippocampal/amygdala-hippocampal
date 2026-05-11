@@ -36,6 +36,7 @@
 </p> 
  
 <p align="center"
+<br> <sup> 𝚋𝚞𝚝 𝙸 𝚠𝚘𝚗'𝚝 𝚋𝚎 𝚢𝚘𝚞𝚛 𝚏𝚛𝚒𝚎𝚗𝚍 𝚒𝚏 𝚢𝚘𝚞'𝚛𝚎 < 𝟷𝟽, 𝚝𝚢 𝚏𝚘𝚛 𝚞𝚗𝚍𝚎𝚛𝚜𝚝𝚊𝚗𝚍𝚒𝚗𝚐 </sup>
 <br> <sup> 𝚌+𝚑 𝚒𝚜 𝚏𝚒𝚗𝚎 𝚒𝚏 𝚖𝚢 𝚏𝚛𝚒𝚎𝚗𝚍𝚜 𝚍𝚘𝚗'𝚝 𝚖𝚒𝚗𝚍 </sup>
 <br> <sup> 𝚖𝚘𝚜𝚝𝚕𝚢 𝚘𝚏𝚏𝚝𝚊𝚋/𝙰𝙵𝙺 𝚜𝚘 <strong>𝚆𝟸𝙸</strong> </sup>
 <br> <sup> 𝙸 𝚑𝚊𝚟𝚎 <a href="https://en.pronouns.page/@mother-moth"> 𝚙𝚛𝚘𝚗𝚘𝚞𝚗𝚜 𝚙𝚊𝚐𝚎 𝚒𝚗 𝚎𝚗𝚐 </a> 𝚊𝚗𝚍 𝚊 <a href="https://ru.pronouns.page/@mother-moth"> 𝚛𝚞𝚜𝚜𝚒𝚊𝚗 𝚘𝚗𝚎 </a> </sup>
