@@ -1,5 +1,5 @@
 <p align="center"
-<br> <img width="1000" src='https://github.com/amygdala-hippocampal/amygdala-hippocampal/blob/main/%D0%BC%D1%8F%D0%BA.png?raw=true'> 
+<br> <img width="1000" src='https://github.com/amygdala-hippocampal/amygdala-hippocampal/blob/main/%D1%85%D1%83%D0%B9%D0%BD%D1%8F.png?raw=true'> 
 </p> 
 
 <p align="center">
@@ -20,7 +20,7 @@
 
 
 <p align="center"> 
-⊹₊·<img width="400" src="https://github.com/amygdala-hippocampal/amygdala-hippocampal/blob/main/%D1%83%D1%81%D1%82%D0%B0%D0%BB%D1%8B%D0%B5%20%D0%BF%D0%BE%D0%B7%D0%B2%D0%BE%D0%BD%D0%BA%D0%B8.png?raw=true"
+⊹₊·<img width="400" src="https://github.com/amygdala-hippocampal/amygdala-hippocampal/blob/main/%D0%BF%D0%BE%D0%B7%D0%B2%D0%BE%D0%BD%D0%BE%D1%87%D0%BD%D0%B8%D0%BA.png?raw=true"
 </p>.·₊
  
 <p align="center"
@@ -29,7 +29,7 @@
 <p align="center"
 <br><sup> 𝟶𝟻/𝟶𝟻/𝟸𝟶𝟶𝟸</sup> <img width="30" src='https://github.com/amygdala-hippocampal/amygdala-hippocampal/blob/main/%D1%81%D0%BA%D1%80%D0%B5%D0%BF%D0%BA%D0%B0.png?raw=true'><sup>𝚜𝚑𝚎/𝚑𝚎𝚛</sup><img width="21" src='https://github.com/amygdala-hippocampal/amygdala-hippocampal/blob/main/%D0%BF%D0%B8%D0%BD.png?raw=true'><sup>𝚛𝚞𝚜𝚜𝚒𝚊𝚗</sup>
 <br> <sup> 𝙸𝙽𝚃𝙹 <img width="15" src='https://github.com/amygdala-hippocampal/amygdala-hippocampal/blob/main/%D1%87%D0%B5%D0%BC%20%D1%8F%20%D0%B7%D0%B0%D0%BD%D0%B8%D0%BC%D0%B0%D1%8E%D1%81%D1%8C.png?raw=true'>  𝚜𝚙𝟻𝚠𝟺 (𝚜𝚙𝟻𝚜𝚙𝟺𝚜𝚙𝟿) <img width="18" src='https://github.com/amygdala-hippocampal/amygdala-hippocampal/blob/main/%D0%BB%D0%B8%D1%81%D1%82.png?raw=true'> 𝚙𝚑𝚕𝚎𝚐𝚖𝚊𝚝𝚒𝚌
-<br> 𝚗𝚘 𝙳𝙽𝙸 <img width="15" src='https://github.com/amygdala-hippocampal/amygdala-hippocampal/blob/main/%D1%87%D0%B5%20%D1%82%D1%8B%20%D1%82%D1%83%D1%82%20%D1%80%D1%8B%D1%89%D0%B5%D1%88%D1%8C.png?raw=true'> 𝚗𝚘𝚝 𝚕𝚘𝚘𝚔𝚒𝚗𝚐 𝚏𝚘𝚛 𝚏𝚛𝚒𝚎𝚗𝚍𝚜
+<br> 𝚗𝚘 𝙳𝙽𝙸 <img width="15" src='https://github.com/amygdala-hippocampal/amygdala-hippocampal/blob/main/%D0%BE%D0%BF%20%D0%B5%D1%89%D0%B5%20%D1%85%D1%83%D0%B9%D0%BD%D1%8F.png?raw=true'> 𝚗𝚘𝚝 𝚕𝚘𝚘𝚔𝚒𝚗𝚐 𝚏𝚘𝚛 𝚏𝚛𝚒𝚎𝚗𝚍𝚜
 </p> 
 <p align="center"
 <br>┗━━━━━━━━⊹━━━━━━━━┛
@@ -44,11 +44,11 @@
 <br> <sup> 𝚘𝚗𝚎-𝚘𝚏𝚏 𝚌𝚑𝚊𝚝𝚜 𝚘𝚛 𝚘𝚌𝚌𝚊𝚜𝚒𝚘𝚗𝚊𝚕 𝚊𝚌𝚚𝚞𝚊𝚒𝚗𝚝𝚊𝚗𝚌𝚎𝚜 𝚊𝚛𝚎 𝚘𝚔 </sup>
 </p>
 <p align="center"
-<br> <img width="350" src='https://github.com/amygdala-hippocampal/amygdala-hippocampal/blob/main/%D0%B2%20%D0%BB%D0%B5%D1%81%D1%83%20%D1%82%D0%B0%D0%BD%D1%86%D1%8B.png?raw=true'> 
+<br> <img width="350" src='https://github.com/amygdala-hippocampal/amygdala-hippocampal/blob/main/%D1%82%D0%B0%D0%BD%D1%86%D1%8B.png?raw=true'> 
 </p> 
 
 <p align="center"
-<br> <img width="1000" src='https://github.com/amygdala-hippocampal/amygdala-hippocampal/blob/main/%D0%BC%D1%8F%D0%BA.png?raw=true'> 
+<br> <img width="1000" src='https://github.com/amygdala-hippocampal/amygdala-hippocampal/blob/main/%D1%85%D1%83%D0%B9%D0%BD%D1%8F.png?raw=true'> 
 </p> 
 
 <p align="center">
