@@ -4,7 +4,11 @@
 <br> <img width="1000" src='https://github.com/amygdala-hippocampal/amygdala-hippocampal/blob/main/%D1%85%D1%83%D0%B9%D0%BD%D1%8F.png?raw=true'> 
 </p> 
 
-
+<p align="center">
+  <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=31a3522ehk5z7d52gvca6ize6wwi&redirect=true">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31a3522ehk5z7d52gvca6ize6wwi&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=89a871&bar_color_cover=false">
+  </a>
+</p>
 
 <p align="center"
 <br> <img width="300" src='https://github.com/amygdala-hippocampal/amygdala-hippocampal/blob/main/%D0%B4%D0%BE%D0%BC.png?raw=true'>
