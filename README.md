@@ -1,10 +1,8 @@
+<img src="https://github.com/amygdala-hippocampal/amygdala-hippocampal/blob/main/%D0%BE%D0%BA.PNG?raw=true">
+
 <p align="center"
 <br> <img width="1000" src='https://github.com/amygdala-hippocampal/amygdala-hippocampal/blob/main/%D1%85%D1%83%D0%B9%D0%BD%D1%8F.png?raw=true'> 
 </p> 
-
-
-<img src="https://github.com/amygdala-hippocampal/amygdala-hippocampal/blob/main/%D0%BE%D0%BA.PNG?raw=true">
-
 
 <p align="center">
   <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=31a3522ehk5z7d52gvca6ize6wwi&redirect=true">
